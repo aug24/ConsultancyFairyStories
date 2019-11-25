@@ -86,6 +86,12 @@ The queen pronounced herself delighted with the king and the princes. But then h
 
 The king only looked flustered for a second, then smiled at his wife. “Of course dear” he said, then turned to the princes. “Quickly!” he shouted, “get more gold until the eggs weigh as much as the queen! NOW! GET ON WITH IT!“
 
-The wise prince smiled, and sent his cupbearer to ask the dwarves to prepare another egg, while he chatted to the king and queen about his reward. The foolish prince... fainted.
+The wise prince smiled, and sent his cupbearer to ask the dwarves to prepare another egg or two. "We'll have that done for you by this evening, your majesties".
+
+"Eggcellent!" said the king, clearly relieved.
+
+The foolish prince, trying to save face, said his new egg could be ready ... soon.
+
+"Oh dear" said the king, sternly.  "Well... better laid than never".  And off he went to discuss the wise prince's reward.
 
 
