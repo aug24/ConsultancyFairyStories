@@ -88,7 +88,7 @@ The king only looked flustered for a second, then smiled at his wife. “Of cour
 
 The wise prince smiled, and sent his cupbearer to ask the dwarves to prepare another egg or two. "We'll have that done for you by this evening, your majesties".
 
-"Eggcellent!" said the king, clearly relieved.
+"Eggcellent!" cried the king, clearly relieved.
 
 The foolish prince, trying to save face, said his new egg could be ready ... soon.
 
